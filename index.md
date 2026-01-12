@@ -1,3 +1,5 @@
+# LastDone Privacy Policy
+
 Privacy Policy — LastDone
 
 Last updated: January 2026
